@@ -1,1 +1,1 @@
-# janhavibabber.resume.site.io
+# resume.site.io
